@@ -1,0 +1,2 @@
+# Newideas
+Live is easier 
